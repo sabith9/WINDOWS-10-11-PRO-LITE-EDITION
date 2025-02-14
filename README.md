@@ -22,7 +22,7 @@ Looking for a faster, more efficient version of Windows 10? Windows 10 Pro Lite 
 
 💥 Download Now and Experience the Lite Revolution! 💥
 
-
+zipfile password:- 123
 
 
 Windows 11 Pro Lite
@@ -49,3 +49,5 @@ Experience the cutting-edge features of Windows 11 without the heavy load! Windo
     Productivity Users: Streamline your experience and focus on the work you need to get done without distractions.
 
 💥 Lighten Up Your Windows Experience Today! 💥
+
+zipfile password:- 123
