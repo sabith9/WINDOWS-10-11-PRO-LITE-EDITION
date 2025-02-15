@@ -25,7 +25,7 @@ Looking for a faster, more efficient version of Windows 10? Windows 10 Pro Lite 
 zipfile password:- 123
 
 
-
+📥 Get Windows 10 Pro Lite Here:https://mega.nz/file/Oy5gVKBQ#X8l-iMBkBnJTKUm9NgDGUdtGN7wmfEmaT_u8LQZAwFs
 
 
 -------------------------------------------------------------------------------------------------------------------------------
